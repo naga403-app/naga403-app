@@ -47,7 +47,24 @@ Akses Cepat dan Stabil – Apk versi terbaru lebih ringan dan stabil di berbagai
 
 Tips Aman Install Apk
 
-<p></p><div class="separator" style="clear: both; text-align: center;"><a href="https://masuknaga403.work/" target="_blank" rel="noopener noreferrer">" imageanchor="1" style="margin-left: 1em; margin-right: 1em;" target="_blank"><img border="0" data-original-height="1024" data-original-width="1536" height="213" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjN9ajpyph_FkN97XLOwb5QSLfUmI6S8kS6ZiBnmg_hViwZ9-cSUDPLm7Q1cSn7Iwg4FoB4DQsD5C6h7mcKRON_GCQSG3CxoP2MxTeRjv-asIIIGfskBMJCeN-ivht0Ze8q8sqevUkPHhcYgCJ7IrfOqutQAhHGBARFEb8-Lmhd43961vGMdWuXZKA1SA/s320/NAGA403-login.png" width="320" /></a></div><br />&nbsp;<p></p>
+<p></p>
+
+<div class="separator" style="clear: both; text-align: center;">
+  <a href="https://masuknaga403.work/" target="_blank" rel="noopener noreferrer" style="margin-left: 1em; margin-right: 1em;">
+    <img
+      border="0"
+      data-original-height="1024"
+      data-original-width="1536"
+      height="213"
+      width="320"
+      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjN9ajpyph_FkN97XLOwb5QSLfUmI6S8kS6ZiBnmg_hViwZ9-cSUDPLm7Q1cSn7Iwg4FoB4DQsD5C6h7mcKRON_GCQSG3CxoP2MxTeRjv-asIIIGfskBMJCeN-ivht0Ze8q8sqevUkPHhcYgCJ7IrfOqutQAhHGBARFEb8-Lmhd43961vGMdWuXZKA1SA/s320/NAGA403-login.png"
+    />
+  </a>
+</div>
+
+<br />
+&nbsp;
+<p></p>
 
 Selalu unduh dari situs resmi atau link terpercaya.
 
